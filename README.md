@@ -1,0 +1,1 @@
+# nsri-resolusi
